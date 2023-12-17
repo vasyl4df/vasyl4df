@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @vasyl4df
+- 👀 I’m interested in accounting and AI.
